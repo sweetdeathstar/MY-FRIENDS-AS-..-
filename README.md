@@ -20,3 +20,5 @@ How I know my friend as this f/c!
 [@hamfoolish](https://github.com)  as the ➼ Hal Jordan GL
 
 [@oraclegordon](https://github.com)  as the ➼ Barbara Gordon! OC
+
+[@hvmantorch](https://github.com) as the ➼ johnny storm! HT
