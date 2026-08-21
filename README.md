@@ -3,22 +3,22 @@ How I know my friend as this f/c!
 
 [@lilsweeterlilbitter](https://github.com) as the ➼ zombie Jason! Rh
 
-[@sebvsene](https://github.com)  as the ➼ Jason todd! Rh
+[@sebvsene](https://github.com)  as the ➼ Jason T. Rh
 
-[@timstalkerdrake](https://github.com)  as the ➼ Tim Drake! RR
+[@timstalkerdrake](https://github.com)  as the ➼ Tim D. rr
 
-[@aeszz](https://github.com)  as the ➼ Clark kent! SM
+[@aeszz](https://github.com)  as the ➼ Clark k. SM
 
-[@bludhavenn](https://github.com)  as the ➼ Dick GraysoN NW! 
+[@bludhavenn](https://github.com)  as the ➼ Dick G. NW! 
 
-[@sketchyremorse](https://github.com)  as the ➼ Stephanie brown! BG
+[@sketchyremorse](https://github.com)  as the ➼ Stephanie B BG
 
-[@arsenall](https://github.com)  as the ➼ Roy Harper! AS
+[@arsenall](https://github.com)  as the ➼ Roy H. AS
 
-[@Lemonyada](https://github.com)  as the ➼ Tim Drake! RR
+[@Lemonyada](https://github.com)  as the ➼ Tim D. rr
 
-[@hamfoolish](https://github.com)  as the ➼ Hal Jordan GL
+[@hamfoolish](https://github.com)  as the ➼ Hal J. GL
 
-[@oraclegordon](https://github.com)  as the ➼ Barbara Gordon! OC
+[@oraclegordon](https://github.com)  as the ➼ Barbara G. OC
 
-[@hvmantorch](https://github.com) as the ➼ johnny storm! HT
+[@hvmantorch](https://github.com) as the ➼ johnny S. HT
